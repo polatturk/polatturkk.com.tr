@@ -1,0 +1,1 @@
+# polatturkk.com.tr
